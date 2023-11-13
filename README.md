@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Serr-Zh.github.io/rsschool-cv/cv
